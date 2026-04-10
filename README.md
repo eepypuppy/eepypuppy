@@ -1,6 +1,6 @@
 
 <p align="center"
-<a href="https://hits.sh/github.com/FearShot/hits/"><img alt="Hits" src="https://hits.sh/github.com/Fearshot/hits.svg?label=freaks&color=9f9f9f"/></a>
+<a href="https://hits.sh/github.com/FearShot/hits/"><img alt="Hits" src="https://hits.sh/github.com/eepypuppy/hits.svg?label=treats&color=dbc8b9"/></a>
 
 <p align="center"
 
