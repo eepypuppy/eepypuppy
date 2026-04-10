@@ -9,7 +9,7 @@
 <p><img src="https://64.media.tumblr.com/bdfed212d092ee15782c257fd61c83e7/255d765ef3a65176-c1/s400x600/cb8704c740b087b783dfb85d63584cf600ff6a6a.gifv"></p>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  𑣲 [rentry](https://rentry.co/konjon)  ㅤ𐂯  ㅤ [ata](https://pawlick.atabook.org/)    ㅤ .ᐟ                                
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  𑣲 [rentry](https://rentry.co/pupjonkent)  ㅤ𐂯  ㅤ [ata](https://pawlick.atabook.org/)    ㅤ .ᐟ                                
 
 
 <p align="center"
